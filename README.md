@@ -35,48 +35,30 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Visiones rerum. = The visions of things. Or Foure poems 1. Principium & mutabilitas rerum. Or, the b
+
+1. TO THE MOST ILLVSTRIOVS AND most excellent CHARLES, Prince of Wales, Duke of Cornewall, Earle of Chester, &c.
+
+1. TO THE READER.
+
 #####Body#####
 
-1. Principium & Mutabilitas rerum.
+1. Visiones Rerum.
+
+    _ Principium & Mutabilitas rerum.
+
+    _ Cursus & Ordo rerum. OR ART AND NATVRE.
 (1) These three Nauall Battailes were the greatest of the World: for the prime Forces both of the Ea
-    _ The Altar to AMBITION and CRV•…LTIE.
+    _ Opineo & Ratio Rerum: OR, A DISPVTE BETWIXT WEALTH AND Pouertie, &c.
 
-    _ 2. The Altar to IGNORANCE and IDOLATRY.
+    _ Malum & finis Rerum: OR, SINNE AND VERTVE.
 
-    _ 3. The Altar of AVARICE and OPRESSIO•….
+      * The Altar to AMBITION and CRV•…LTIE.
 
-    _ 4. The Altar to LVST and LVXVRIE.
-(1) Herod surnamed the Great (tho valiant, cruell) put to death Mariamne his wife (a woman both chas
-1. Cursus & Ordo rerum. OR ART AND NATVRE.
-(1) These three Nauall Battailes were the greatest of the World: for the prime Forces both of the Ea
-    _ The Altar to AMBITION and CRV•…LTIE.
+      * 2. The Altar to IGNORANCE and IDOLATRY.
 
-    _ 2. The Altar to IGNORANCE and IDOLATRY.
+      * 3. The Altar of AVARICE and OPRESSIO•….
 
-    _ 3. The Altar of AVARICE and OPRESSIO•….
-
-    _ 4. The Altar to LVST and LVXVRIE.
-(1) Herod surnamed the Great (tho valiant, cruell) put to death Mariamne his wife (a woman both chas
-1. Opineo & Ratio Rerum: OR, A DISPVTE BETWIXT WEALTH AND Pouertie, &c.
-(1) These three Nauall Battailes were the greatest of the World: for the prime Forces both of the Ea
-    _ The Altar to AMBITION and CRV•…LTIE.
-
-    _ 2. The Altar to IGNORANCE and IDOLATRY.
-
-    _ 3. The Altar of AVARICE and OPRESSIO•….
-
-    _ 4. The Altar to LVST and LVXVRIE.
-(1) Herod surnamed the Great (tho valiant, cruell) put to death Mariamne his wife (a woman both chas
-1. Malum & finis Rerum: OR, SINNE AND VERTVE.
-(1) These three Nauall Battailes were the greatest of the World: for the prime Forces both of the Ea
-    _ The Altar to AMBITION and CRV•…LTIE.
-
-    _ 2. The Altar to IGNORANCE and IDOLATRY.
-
-    _ 3. The Altar of AVARICE and OPRESSIO•….
-
-    _ 4. The Altar to LVST and LVXVRIE.
+      * 4. The Altar to LVST and LVXVRIE.
 (1) Herod surnamed the Great (tho valiant, cruell) put to death Mariamne his wife (a woman both chas
 **Types of content**
 
